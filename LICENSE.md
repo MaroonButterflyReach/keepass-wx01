@@ -1,4 +1,4 @@
-# 
+# exclusive Norton 360 for PC scripts is the best Norton 360 for PC scripts with web-protection and anti-adware. Safe, reliable, and optimized for maximum performance.
 
 
 
